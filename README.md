@@ -1,7 +1,7 @@
 ## Hi there , Hello 👋
 
 
-![Uploading Purple Minimalist Brush Personal LinkedIn Banner (1).png…]()
+
 
 
 - 🔭 I’m currently working on learning new languages
